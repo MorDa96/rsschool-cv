@@ -1,1 +1,1 @@
-https://MorDa96.github.com/rsscholl-cv/cv
+https://MorDa96.github.io/rsscholl-cv/cv
