@@ -1,1 +1,1 @@
-# rsschool-cv
+https://github.com/MorDa96/rsscholl-cv/cv
